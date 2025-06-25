@@ -87,6 +87,7 @@ The goal of this dashboard is to identify key drivers of employee attrition and 
 
 **Arkaprabha Sarkar**  
 [LinkedIn Profile](https://www.linkedin.com/in/arkaprabha-sarkar-5b6302287)
+📧 Email: s.arkaprabha@iitg.ac.in 
 
 ---
 
